@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://m.media-amazon.com/images/S/compressed.photo.goodreads.com/books/1635951644i/59530069.jpg" width="160"/>
+<img src="https://m.media-amazon.com/images/S/compressed.photo.goodreads.com/books/1374068392i/18211890.jpg" width="160"/>
 
 <br>
 
@@ -21,7 +21,7 @@ Clique no link abaixo para baixar As Armas da Persuasão PDF por Robert B. Ciald
 
 <br>
 
-<a href="https://filepdf.site/read/59530069/"><strong>📥 Baixar As Armas da Persuasão 👈</strong></a>
+<a href="https://filepdf.site/read/18211890/"><strong>📥 Baixar As Armas da Persuasão 👈</strong></a>
 
 ---
 
@@ -72,6 +72,6 @@ Sim, versão completa para fins educacionais.
 
 <div align="center">
 
-<a href="https://filepdf.site/read/59530069/"><strong>📥 Baixar As Armas da Persuasão 👈</strong></a>
+<a href="https://filepdf.site/read/18211890/"><strong>📥 Baixar As Armas da Persuasão 👈</strong></a>
 
 </div>
